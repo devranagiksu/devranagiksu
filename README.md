@@ -5,6 +5,10 @@
 
 - 📫 How to reach me **devranagiksu@gmail.com**
 
+mes hobies :
+badminton 🏸
+robotique 🤖
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
