@@ -3,7 +3,7 @@
 
 
 
-- 📫 How to reach me **devranagiksu@gmail.com**
+- 📫 How to reach me devranagiksu@gmail.com
 
 mes hobies :
 badminton 🏸
